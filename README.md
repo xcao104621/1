@@ -1,21 +1,20 @@
 # 小狐狸最新下载地址（2021年9月18日更新）
 
 ### 点击以下链接进入下载页：
-### [4i70.xyz](http://4i70.xyz)<br> 
-### [yn6u.xyz](http://yn6u.xyz)<br>
+### [s30a.xyz](http://s30a.xyz)<br> 
+### [reir.xyz](http://reir.xyz)<br>
 
-主播版下载地址 [762b.xyz](http://762b.xyz)
+主播版下载地址 [5h8g.xyz](http://5h8g.xyz)
 
 （观众下载无法使用）
 
 备用观众版下载地址如下<br>
-4i70.xyz<br>
-mq44.xyz<br>
-5g07.xyz<br>
-e5lg.xyz<br>
+kcks.xyz<br>
+wfim.xyz<br>
+lvtj.xyz<br>
 
 备用主播版下载地址如下<br>
-762b.xyz<br>
+fo48.xyz<br>
 
 # 小狐狸回家页简介
 专人不断更新，提供最新小狐狸下载地址<br>
